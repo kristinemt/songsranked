@@ -1,5 +1,5 @@
 # Songs Ranked!
-Hello! I am Kristine and I love listening to music. On this blog, I will pick different albums and rank the songs on them! Please note that these are my current rankings as of October 2022. They are subject to, _and most likely will_, change!
+Hello! I am Kristine and I love listening to music. On this blog, I will pick different albums and rank the songs on them! I will also include a terrible recreation of the album art, illustrated by me. Please note that these are my current rankings as of October 2022. They are subject to, _and most likely will_, change!
 
 ## Harry's House by Harry Styles
 <img src="harryshouse.jpg" width="400" height="400">
