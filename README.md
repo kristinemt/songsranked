@@ -3,6 +3,6 @@ Hello! I am Kristine and I love listening to music. On this blog, I will pick di
 
 ## Harry's House 
 ![Harry'sHouse](harryshouse.jpg "My drawing of Harry's House")
-<img Harry'sHouse="harryshouse.jpg" width="200" height="100">
+<img src="harryshouse.jpg" width="200" height="100">
 
 
