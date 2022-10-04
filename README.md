@@ -11,37 +11,37 @@ This album came out in 2022 and it is easily my favorite album from Harry Styles
 2. Satellite
 
 
-4. Cinema
+3. Cinema
 
 
-6. Daydreaming
+4. Daydreaming
 
 
-8. Daylight
+5. Daylight
 
 
-10. Love Of My Life
+6. Love Of My Life
 
 
-12. As It Was
+7. As It Was
 
 
-14. Matilda
+8. Matilda
 
 
-16. Grapejuice
+9. Grapejuice
 
 
-18. Music For a Sushi Restaurant
+10. Music For a Sushi Restaurant
 
 
-20. Keep Driving
+11. Keep Driving
 
 
-22. Little Freak
+12. Little Freak
 
 
-24. Boyfriends
+13. Boyfriends
 
 
 ## Apricot Princess by Rex Orange County
@@ -54,28 +54,28 @@ Listen [here](https://open.spotify.com/album/2NBVxjZcbH5H1N1Ab2ExDH)!
 2. Apricot Princess
 
 
-4. Untitled
+3. Untitled
 
 
-6. 4 Seasons 
+4. 4 Seasons 
 
 
-8. Happiness
+5. Happiness
 
 
-10. Never Enough
+6. Never Enough
 
 
-12. Sycamore Girl
+7. Sycamore Girl
 
 
-14. Waiting Room
+8. Waiting Room
 
 
-16. Rain Man
+9. Rain Man
 
 
-18. Nothing
+10. Nothing
 
 ## Stay tuned for more!
 Thank you for visting my page! Please feel free to request any albums!
