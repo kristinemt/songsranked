@@ -4,7 +4,7 @@ Hello! I am Kristine and I love listening to music. On this blog, I will pick di
 ## Harry's House by Harry Styles
 <img src="harryshouse.jpg" width="400" height="400">
 
-This album came out in 2022 and it is easily my favorite Harry Styles' album! The album can be found on all music streaming services, including [Spotify](https://open.spotify.com/album/5r36AJ6VOJtp00oxSkBZ5h). _The best music streaming service! ;D_ Let's start with the lists! 
+This album came out in 2022 and it is easily my favorite album from Harry Styles! The album can be found on all music streaming services, including [Spotify](https://open.spotify.com/album/5r36AJ6VOJtp00oxSkBZ5h). _The best music streaming service! ;D_ Let's start with the lists! 
 
 **1. Late Night Talking**
 
