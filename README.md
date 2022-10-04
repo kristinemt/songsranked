@@ -2,5 +2,5 @@
 Hello! I am Kristine and I love listening to music. On this blog, I will pick different albums and rank the songs on them!
 
 ## Harry's House 
-![My drawing of the album!](/assets/images/harryshouse.jpg "My drawing of Harry's House")
+![Harry'sHouse](harryshouse.jpg "My drawing of Harry's House")
 
